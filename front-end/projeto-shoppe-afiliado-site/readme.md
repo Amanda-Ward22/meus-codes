@@ -1,1 +1,0 @@
-aqui vai ser meu projeto de afiliado shoppe a ideia  e fazer um site que hospede imagens , links de afiliados os redirecionem e separepor categoria baseado nas publicaçoes das redes socias
